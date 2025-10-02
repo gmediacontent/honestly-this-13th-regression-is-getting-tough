@@ -1,1 +1,4 @@
-# honestly-this-13th-regression-is-getting-tough
+# Honestly, This 13th Regression is Getting Tough
+Je n'ai plus l'intention de sauver le monde. Je ne ferai plus confiance à mes compagnons. Je tuerai quiconque pourrait devenir un ennemi. Même s'ils sont censés être mes alliés. Treize régressions. J'ai sauvé le monde six fois, mais aucune de ces fins n'était la « bonne réponse ».
+
+L'homme qui était autrefois un héros est devenu un monstre à force de régressions sans fin. Les compagnons en qui il croyait sont devenus des traîtres, et les ennemis sont partout. Il a renoncé à son humanité pour survivre. Toutes les histoires de régression sont-elles identiques ? Cet homme est différent.
